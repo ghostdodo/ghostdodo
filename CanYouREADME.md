@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ghostdodo
-- 👀 I’m interested in P
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in Nothing
+- 🌱 I’m currently learning Everything
+- 💞️ I’m looking to collaborate in Hell
+- 📫 How to reach me? You can't I am Ghost
